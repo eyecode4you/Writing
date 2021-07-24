@@ -1,8 +1,8 @@
 # Writing
 ## Authorship Material
 
-### <i>Shorts</i> - Short Stories
+### <i>Articles</i> - Articles I've written
 
 ### <i>Poetry?</i> - Attempts at poetic-ish prose
 
-### <i>Articles</i> - Articles I've written
+### <i>Shorts</i> - Short Stories
